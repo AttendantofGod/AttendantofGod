@@ -1,16 +1,25 @@
-## Hi there 👋
-
-<!--
-**AttendantofGod/AttendantofGod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+. ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ɪᴛ'ꜱ ꜱɪʟᴇɴᴛ ʜɪʟʟ ᴛʜᴇʀᴇ'ꜱ ɢᴏɪɴɢ ᴛᴏ ʙᴇ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! ᴍʏ ᴅɴɪ ᴀʟꜱᴏ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! ꜰʟᴀꜱʜɪɴɢ ʟɪɢʜᴛꜱ? ᴊᴜꜱᴛ ɪɴ ᴄᴀꜱᴇ ᴛᴏᴏ? .
+<p align="center"> <img width="440" height="440" src="https://static.wikia.nocookie.net/silent/images/8/8b/ValtielChapel1.gif/revision/latest?cb=20170426135538"> </p>
+<p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​🇱​​🇮​​🇴​​🇳​​🇦​ .
+<p align="center"> <img width="66" height="66" src="https://64.media.tumblr.com/da764d61d737c40ccc7e5696356c7b4f/2795e981e9fbfb3f-ec/s75x75_c1/8c25506301f7824ce149c11787bdf23b9975e960.gifv">
+<p align="center">. 17 . 11/18 .
+<p align="center">. <img width="66" height="66" src="https://64.media.tumblr.com/e4f3e48b9f3cdbbd3f3e1ca648a8f899/52a13ab225999e59-9a/s1280x1920/a466339e820c7a3d2e5dcbc392c4c0074e2ab81b.pnj"> .
+<p align="right">. <img width="66" height="66" src="https://64.media.tumblr.com/a9ef87f08ace7ed384e8028e15f1be85/e5c016eabc92e631-6d/s400x600/6b5f40cec53baf3f874bf715e3fd2284c5129d48.pnj"> ​🇩​​🇳​​🇮​ : 
+<p align="right">. 'ɪ'ᴍ ɢᴏɪɴɢ ᴛᴏ ᴛᴏᴜᴄʜ ʏᴏᴜ', 'ɪ ʜᴏᴘᴇ ᴅ1ᴅᴅʏ ɢᴇᴛꜱ ʏᴏᴜ' ᴊᴏᴋᴇꜱ .
+<p align="right">. ᴜɴɴᴇᴄᴇꜱꜱᴀʀʏ ꜰᴀɴᴅᴏᴍ ʜᴀᴛᴇʀꜱ .
+<p align="right">. ᴡ33ᴅ , ᴅʀᴜɢꜱ , ᴅʀᴜɴᴋ ᴘᴏɴʏ ꜱᴋɪɴꜱ .
+<p align="right">. ᴛᴜᴛᴏʀɪᴀʟ , ꜱᴛᴏʟᴇɴ , ᴄᴏᴘʏᴄᴀᴛ ᴘᴛ ꜱᴋɪɴꜱ .
+<p align="right">. ᴏɴʟʏ ᴛᴀʟᴋꜱ ᴛᴏ ᴍᴇ ᴛᴏ ᴛʀʏ ᴛᴏ ᴅᴀᴛᴇ ᴍᴇ , ʙᴀᴄᴋꜱᴛᴀʙʙᴇʀꜱ , ʀᴀɢᴇ-ʙᴀɪᴛᴇʀꜱ , ꜱɴᴀʀᴋʏ ᴘᴇᴏᴘʟᴇ .
+<p align="right"> . ɢᴇɴᴅᴇʀ/ᴘʀᴏɴᴏᴜɴ ᴀꜱᴋᴇʀꜱ . ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ʜᴀᴠᴇ ʙᴇᴇꜰ ᴡɪᴛʜ ᴛʜᴇꜱᴇ ᴛʏᴘᴇꜱ ᴏꜰ ᴘᴇᴏᴘʟᴇ ᴀɴᴅ ʜᴀᴠᴇ ᴛʀᴀᴜᴍᴀ ʀᴇɢᴀʀᴅɪɴɢ ᴛʜɪꜱ ᴄᴏᴍᴍᴜɴɪᴛʏ , ɪ ᴅᴏ ɴᴏᴛ ʜᴀᴛᴇ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ᴏʀ ᴛʜᴇɪʀ ꜱᴛᴜꜰꜰ , ɪ ᴊᴜꜱᴛ ᴅᴏ ɴᴏᴛ ᴡᴀɴᴛ ᴛᴏ ᴏᴘᴇɴ ᴛʜᴀᴛ ᴄᴀɴ ᴏꜰ ᴡᴏʀᴍꜱ . ɪꜰ ʏᴏᴜ ᴅᴏ ᴀꜱᴋ ᴏʀ ᴡɪꜱʜ ᴛᴏ ᴋɴᴏᴡ, ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴄᴀɴ ʙᴇ ᴀɴʏᴛʜɪɴɢ ᴀꜱ ʟᴏɴɢ ᴀꜱ ᴛʜᴇʏ ᴀʀᴇ ʀᴇᴀꜱᴏɴᴀʙʟᴇ ᴇx: ꜱʜᴇ/ʜᴇʀ .
+<p align="right"> . ᴀɴʏᴏɴᴇ ɪ ᴋɪɴ ᴏʀ ʟᴏᴠᴇ ᴅᴏᴇꜱ ɴᴏᴛ ᴍᴇᴀɴ ɪ ᴅᴏ ᴛʜᴇɪʀ ᴀᴄᴛɪᴏɴ , ᴘʟᴇᴀꜱᴇ ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴀᴛ ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ᴍᴀᴅᴇ-ᴜᴘ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ᴀɴᴅ ɪɴ ᴍʏ ᴏᴘɪɴɪᴏɴ ᴀʀᴇ ɴᴏᴛʜɪɴɢ ᴍᴏʀᴇ ᴀɴᴅ ɴᴏᴛʜɪɴɢ ʟᴇꜱꜱ . ɪ ᴅᴏ ɴᴏᴛ ᴠɪᴇᴡ ᴍʏꜱᴇʟꜰ ᴀꜱ ᴀ ꜰᴀᴄᴇʟᴇꜱꜱ ᴄʟᴏᴛʜ-ᴄᴏᴠᴇʀᴇᴅ ᴍᴏɴꜱᴛʀᴏꜱɪᴛʏ ᴡʜᴏ ᴡᴀꜱ ᴄʀᴇᴀᴛᴇᴅ ᴛᴏ ꜱᴇʀᴠᴇ ɢᴏᴅ , ɪ ᴅᴏ ɴᴏᴛ ᴅᴏ ᴀɴʏ ᴀᴄᴛɪᴏɴꜱ ᴏꜰ ᴠᴀʟᴛɪᴇʟ . ᴛʜᴀᴛ ɢᴏᴇꜱ ꜰᴏʀ ᴀʟʟ ᴋɪɴꜱ ᴏʀ ᴊᴜꜱᴛ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ʟɪᴋᴇ .
+<p align="center"> <img width="440" height="440" src="https://static.wikia.nocookie.net/silent/images/d/d3/GodFace.gif/revision/latest?cb=20150508081412"> </p>
+<p align="left"> . ​🇱​​🇮​​🇰​​🇪​​🇸​ : <img width="66" height="66" src="https://64.media.tumblr.com/31fbd8117d57f951c1fdba0b342b75f9/b048f4e4b1bff21d-ba/s540x810/481b089b01c94edaaf4c37b75e7d047d8b723870.gifv">
+<p align="left"> . ɢᴜɴᴅᴀᴍ , ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ , ᴇᴠᴀɴɢᴇʟɪᴏɴ .
+<p align="left"> . ᴜᴍᴀᴍᴜꜱᴜᴍᴇ , ʜᴏʀꜱᴇꜱ ɪɴ ɢᴇɴᴇʀᴀʟ .
+<p align="left"> . ᴋɪɴɢᴅᴏᴍ ʜᴇᴀʀᴛꜱ ​🇸​​🇵​​🇪​​🇨​​🇮​​🇫​​🇮​​🇨​​🇦​​🇱​​🇱​​🇾​ ​🇰​​🇮​​🇳​​🇬​​🇩​​🇴​​🇲​ ​🇭​​🇪​​🇦​​🇷​​🇹​​🇸​ ​🇽​ (​🇺​​🇳​​🇨​​🇭​​🇦​​🇮​​🇳​​🇪​​🇩​ ​🇽​/​🇺​​🇳​​🇮​​🇴​​🇳​ ​🇽​ ​🇩​​🇦​​🇷​​🇰​ ​🇷​​🇴​​🇦​​🇩​)
+<p align="left"> . ꜱɪʟᴇɴᴛ ʜɪʟʟ ɪɴᴄʟᴜᴅɪɴɢ ꜰ .
+<p align="left"> . ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ] .
+<p align="left"> . ​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
+<p align="left"> . ​🇴​​🇺​​🇹​​🇱​​🇦​​🇸​​🇹​ ​🇹​​🇷​​🇮​​🇦​​🇱​​🇸​ . ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ .
+<p align="center"> <img width="440" height="440" src="https://static.wikia.nocookie.net/silent/images/e/e2/ValtielOpening.gif/revision/latest?cb=20150711051052"> </p>
+<p align="center"> !! ​🇫​​🇦​​🇻​​🇴​​🇷​​🇮​​🇹​​🇪​ ​🇶​​🇺​​🇴​​🇹​​🇪​ !! . '​🇹​​🇭​​🇪​ ​🇾​​🇪​​🇱​​🇱​​🇴​​🇼​ ​🇬​​🇴​​🇩​ ​🇮​​🇸​ ​🇳​​🇴​​🇳​​🇪​ ​🇴​​🇹​​🇭​​🇪​​🇷​ ​🇹​​🇭​​🇦​​🇳​... ​🇲​​🇮​​🇷​​🇦​, ​🇹​​🇭​​🇪​ ​🇩​​🇴​​🇬​! ​🇹​​🇭​​🇮​​🇳​​🇰​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇮​​🇹​, ​🇭​​🇪​​🇷​ ​🇫​​🇺​​🇷​❜​🇸​ ​🇾​​🇪​​🇱​​🇱​​🇴​​🇼​ ​🇦​​🇳​​🇩​ ​🇸​​🇭​​🇪​ ​🇦​​🇱​​🇸​​🇴​ ​🇨​​🇴​​🇳​​🇹​​🇷​​🇴​​🇱​​🇸​ ​🇸​​🇮​​🇱​​🇪​​🇳​​🇹​ ​🇭​​🇮​​🇱​​🇱​ ​🇼​​🇮​​🇹​​🇭​ ​🇭​​🇪​​🇷​ ​🇨​​🇦​​🇷​​🇹​​🇴​​🇴​​🇳​​🇮​​🇸​​🇭​ ​🇨​​🇴​​🇳​​🇹​​🇷​​🇴​​🇱​ ​🇵​​🇦​​🇳​​🇪​​🇱​!' .
