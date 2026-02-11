@@ -22,5 +22,6 @@
 <p align="left"> . ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ] .
 <p align="left"> . ​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
 <p align="left"> . ​🇴​​🇺​​🇹​​🇱​​🇦​​🇸​​🇹​ ​🇹​​🇷​​🇮​​🇦​​🇱​​🇸​ . ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ .
-<p align="center"> <img width="440" height="440" src="https://files.catbox.moe/40nkj4.gif"> </p>
+<p align="center"> <img width="440" height="440" src="https://media1.tenor.com/m/6oHBXhsK7dgAAAAd/geist-grave-digger.gif"> </p>
 <p align="center"> !! ​🇫​​🇦​​🇻​​🇴​​🇷​​🇮​​🇹​​🇪​ ​🇶​​🇺​​🇴​​🇹​​🇪​ !! . '​🇹​​🇭​​🇪​ ​🇾​​🇪​​🇱​​🇱​​🇴​​🇼​ ​🇬​​🇴​​🇩​ ​🇮​​🇸​ ​🇳​​🇴​​🇳​​🇪​ ​🇴​​🇹​​🇭​​🇪​​🇷​ ​🇹​​🇭​​🇦​​🇳​... ​🇲​​🇮​​🇷​​🇦​, ​🇹​​🇭​​🇪​ ​🇩​​🇴​​🇬​! ​🇹​​🇭​​🇮​​🇳​​🇰​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇮​​🇹​, ​🇭​​🇪​​🇷​ ​🇫​​🇺​​🇷​❜​🇸​ ​🇾​​🇪​​🇱​​🇱​​🇴​​🇼​ ​🇦​​🇳​​🇩​ ​🇸​​🇭​​🇪​ ​🇦​​🇱​​🇸​​🇴​ ​🇨​​🇴​​🇳​​🇹​​🇷​​🇴​​🇱​​🇸​ ​🇸​​🇮​​🇱​​🇪​​🇳​​🇹​ ​🇭​​🇮​​🇱​​🇱​ ​🇼​​🇮​​🇹​​🇭​ ​🇭​​🇪​​🇷​ ​🇨​​🇦​​🇷​​🇹​​🇴​​🇴​​🇳​​🇮​​🇸​​🇭​ ​🇨​​🇴​​🇳​​🇹​​🇷​​🇴​​🇱​ ​🇵​​🇦​​🇳​​🇪​​🇱​!' .
+<p align="center"> If you read it all send me an ata/sp based about this video please i need to check if it all works it keeps glitching!! <a href="https://youtube.com/shorts/4wfJVjCvO8g?si=M2L9psdkOX8olkjy" target="_blank">video!</a>
