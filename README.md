@@ -1,5 +1,7 @@
 . ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ɪᴛ'ꜱ ꜱɪʟᴇɴᴛ ʜɪʟʟ ᴛʜᴇʀᴇ'ꜱ ɢᴏɪɴɢ ᴛᴏ ʙᴇ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! ᴍʏ ᴅɴɪ ᴀʟꜱᴏ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! ꜰʟᴀꜱʜɪɴɢ ʟɪɢʜᴛꜱ? ᴊᴜꜱᴛ ɪɴ ᴄᴀꜱᴇ ᴛᴏᴏ? .
 <p align="center"> . ᴀꜱ ᴏꜰ ᴛᴏᴅᴀʏ . 2/10/2026 . ɪ ʜᴀᴠᴇ ɴᴏ ᴅɪꜱᴄᴏʀᴅ ᴀɴʏᴍᴏʀᴇ, ᴛʜᴇ ᴅᴀᴛᴀ ʙʀᴇᴀᴋᴏᴜᴛ ᴀɴᴅ ᴛʜᴇ ᴀɢᴇ ᴠᴇʀɪꜰɪᴄᴀᴛɪᴏɴ ʀᴇQᴜɪʀᴇᴍᴇɴᴛꜱ ʜᴀᴠᴇ ᴄᴀᴜꜱᴇᴅ ɪꜱꜱᴜᴇꜱ ɪɴ ᴍʏ ꜰᴀᴍɪʟʏ , ᴛʜᴇʀᴇꜰᴏʀᴇ ɪ ᴀᴍ ɴᴏᴡ ᴏɴʟʏ ᴜꜱɪɴɢ ꜱᴛᴇᴀᴍ ᴀɴᴅ ᴘᴏɴʏ ᴛᴏᴡɴ ᴜɴᴛɪʟ ᴀ ꜱᴀꜰᴇʀ ᴘʟᴀᴛꜰᴏʀᴍ ɪꜱ ᴍᴀᴅᴇ .
+
+  <p align="center"> As of today . 2/12/2026 . My discord is back due to my father changing his mind , BUT I will not accept any DMS or friend requests from anyone , if you wish to stay in contact with me you must only friend me and hope I get online , thank you ^_^!
 <p align="center"> <img width="440" height="440" src="https://files.catbox.moe/in0ehq.gif"> </p>
 <p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​🇱​​🇮​​🇴​​🇳​​🇦​ .
 <p align="center"> <img width="66" height="66" src="https://files.catbox.moe/vjwnf0.gif">
