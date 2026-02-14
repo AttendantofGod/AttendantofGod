@@ -9,7 +9,7 @@
 <p align="right">. ɢʜᴏꜱᴛꜱ , ꜱᴏᴍᴇᴏɴᴇ ᴅᴀʀᴇᴅ ᴛᴏ ɢᴏ ᴀɢᴀɪɴꜱᴛ ᴛʜᴇᴍ .<img with="44" height="44" src="https://64.media.tumblr.com/ec9c84b21a70295e004d265684ce1c7e/2408ed4c36a938c0-5e/s75x75_c1/8d604fe53507baf5aaea4bf94c9b96f25558d658.pnj"> </p>
   <p align="center"> <img width="100" height="60" src="https://64.media.tumblr.com/a7f046d95f8d41420b8806eedffa4738/817a23bafd10d89a-62/s250x400/82a2b9373e4ed1e5fd754c597fdf44fcfd39095a.pnj"><img width="100" height="60" src="https://64.media.tumblr.com/8bcf40968dc107724e8fd379663a254b/6f669be85b9fdd3f-32/s250x400/7b94ff5c33150035861d394822c0b0912bc5abb0.gifv"><img width="100" height="60" src="https://64.media.tumblr.com/b6457b7f7799b2fc27fa2106e96aa2c9/2a15159cc53227f5-1a/s100x200/4b81a25e86465bd450b10acfff9c076add2e5ad7.gifv"> </p>
 <p align="right">. 🇩​​🇳​​🇮​ : <img width="44" height="44" src="https://64.media.tumblr.com/33a66541933e4193eed51c8c4690d84b/f4cf3be3a03a39af-25/s250x400/da1be549073070d109e97e456a43e50cd2d7c6ff.gifv"> </p>
-<p align="right">. 'ɪ'ᴍ ɢᴏɪɴɢ ᴛᴏ ᴛᴏᴜᴄʜ ʏᴏᴜ', 'ɪ ʜᴏᴘᴇ ᴅ1ᴅᴅʏ ɢᴇᴛꜱ ʏᴏᴜ' ᴊᴏᴋᴇꜱ .
+<p align="right">. 'ɪ'ᴍ ɢᴏɪɴɢ ᴛᴏ ᴛᴏᴜᴄʜ ʏᴏᴜ', 'ɪ ʜᴏᴘᴇ ᴅ1ᴅᴅʏ ɢᴇᴛꜱ ʏᴏᴜ' ᴊᴏᴋᴇꜱ . ᴇᴘꜱᴛᴇɪɴ ᴊᴏᴋᴇꜱ . ɪꜰ ɪ ᴇᴠᴇɴ ꜱᴇᴇ ᴀ ꜱᴋɪɴ ᴏꜰ ʜɪᴍ [ᴡʜɪᴄʜ ɪ ʜᴀᴠᴇ] ɪ'ᴍ ʙʟᴏᴄᴋɪɴɢ ʏᴏᴜ . ᴏᴋ?
 <p align="right">. ᴜɴɴᴇᴄᴇꜱꜱᴀʀʏ ꜰᴀɴᴅᴏᴍ ʜᴀᴛᴇʀꜱ .
 <p align="right">. ᴡ33ᴅ , ᴅʀᴜɢꜱ , ᴅʀᴜɴᴋ ᴘᴏɴʏ ꜱᴋɪɴꜱ .
 <p align="right">. ᴛᴜᴛᴏʀɪᴀʟ , ꜱᴛᴏʟᴇɴ , ᴄᴏᴘʏᴄᴀᴛ ᴘᴛ ꜱᴋɪɴꜱ .
