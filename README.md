@@ -1,7 +1,7 @@
 <p align="center"> . ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ᴍʏ ᴅɴɪ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! .
 <p align="center"> As of today . 2/12/2026 . I will not accept any DMS or friend requests from anyone on Discord , if you wish to stay in contact with me you must only friend me and hope I get online , thank you ^_^!
 
-<p align="center"> <img width="900" height="600" src="https://64.media.tumblr.com/216bbbf16a8a65c27746039d7aabba45/1e3f52aa3fa01c75-da/s2048x3072/052cec8dadfcb3afbf35391ceaa099c33811d3ef.pnj"> </p>
+<p align="center"> <img width="900" height="600" src="https://files.catbox.moe/oj5lbo.jpg"> </p>
 <p align="center"> <img width="440" height="440" src="https://files.catbox.moe/405rj8.png"> </p>
 <p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​🇱​​🇮​​🇴​​🇳​​🇦​ .
 <p align="center"> <img width="400" height="190" src="https://64.media.tumblr.com/85d0f7bb16de61fae5dc19631da8f5e8/1e3f52aa3fa01c75-e6/s2048x3072/1d8bc8d0f72e55e66f14e7d4ec81bb47ad9f0d91.pnj"> </p>
