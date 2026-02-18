@@ -2,7 +2,7 @@
 <p align="center"> As of today . 2/12/2026 . I will not accept any DMS or friend requests from anyone on Discord , if you wish to stay in contact with me you must only friend me and hope I get online , thank you ^_^!
 
 <p align="center"> <img width="900" height="600" src="https://files.catbox.moe/oj5lbo.jpg"> </p>
-<p align="center"> <img width="440" height="440" src="https://files.catbox.moe/405rj8.png"> </p>
+<p align="center"> <img width="440" height="440" src="https://files.catbox.moe/apjb6x.webp"> </p>
 <p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​🇱​​🇮​​🇴​​🇳​​🇦​ .
 <p align="center"> <img width="400" height="190" src="https://64.media.tumblr.com/85d0f7bb16de61fae5dc19631da8f5e8/1e3f52aa3fa01c75-e6/s2048x3072/1d8bc8d0f72e55e66f14e7d4ec81bb47ad9f0d91.pnj"> </p>
 <p align="center">. 17 . 11/18 .
@@ -26,7 +26,7 @@
 <p align="left"> . ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ] .
 <p align="left"> . ​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
 <p align="left"> . ​🇴​​🇺​​🇹​​🇱​​🇦​​🇸​​🇹​ ​🇹​​🇷​​🇮​​🇦​​🇱​​🇸​ . ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ .
-<p align="center"> <img width="440" height="440" src="https://files.catbox.moe/vx15gm.webp"> </p>
+<p align="center"> <img width="440" height="440" src="https://files.catbox.moe/qmbwfd.webp"> </p>
 <p align="right"> . ꜱᴛᴀᴍᴘꜱ ɪ ʟɪᴋᴇ ^_^ ᴀɴᴅ ꜱᴏɴɢ ʟʏʀɪᴄꜱ ɪ ᴇɴᴊᴏʏ !! .
 <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/7f4698b67e0c08745637f9e9be8f9484/78f0cc0c088af555-97/s100x200/c9c860d7957fe44b2f650eab2ab1783eb4f9975e.gifv"> </p>
 <p align="right"> '. ʏᴏᴜ ᴡᴀɴᴛ ᴛʜᴇ ᴀᴄᴄʟᴀɪᴍ , ᴛʜᴇ ᴍᴏᴛʜᴇʀ ᴏꜰ ᴍᴏᴛʜᴇʀꜱ .' - ᴀᴄʜɪʟʟᴇꜱ ᴄᴏᴍᴇ ᴅᴏᴡɴ .
