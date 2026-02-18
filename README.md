@@ -1,5 +1,5 @@
 <p align="center"> . ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ᴍʏ ᴅɴɪ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! .
-<p align="center"> As of today . 2/12/2026 . I will not accept any DMS or friend requests from anyone on Discord , if you wish to stay in contact with me you must only friend me and hope I get online , thank you ^_^!
+<p align="center"> . ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɪ ꜱᴀʏ 'ᴡᴇ' ᴏʀ 'ᴜꜱ' , ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ Qᴜᴇꜱᴛɪᴏɴ ɪᴛ , ɪᴛ'ꜱ ᴀ ꜱʟɪᴘ ᴏꜰ ᴛʜᴇ ᴛʜᴏᴜɢʜᴛ-ᴘʀᴏᴄᴇꜱꜱ . ꜱᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ɪ ᴛᴀʟᴋ ᴛᴏ ᴊᴜꜱᴛ ᴀꜱꜱᴜᴍᴇ ɪᴛ'ꜱ ᴀ ᴛɪᴄᴋ ᴏʀ ꜱᴏᴍᴇᴛʜɪɴɢ ᴡʜɪᴄʜ ᴏᴋ ɪ ᴅᴏɴ'ᴛ ᴄᴀʀᴇ ʙᴜᴛ ᴅᴏ __ɴᴏᴛ__ ᴀꜱꜱᴜᴍᴇ ɪ ᴀᴍ ꜰᴀᴋɪɴɢ ᴅɪᴅ ᴏʀ ᴀɴʏᴛʜɪɴɢ . ɪᴛ'ꜱ ᴊᴜꜱᴛ ᴀ ʟɪᴛᴛʟᴇ ᴍɪꜱʜᴀᴘ ᴛʜᴀᴛ ʜᴀᴘᴘᴇɴꜱ ᴏꜰᴛᴇɴ , ɪ ᴀᴍ ɴᴏᴛ ᴛʀʏɪɴɢ ᴛᴏ ʙᴇ 'Qᴜɪʀᴋʏ' ᴏʀ 'ꜱᴘᴇᴄɪᴀʟ' ᴏʀ ᴀɴʏᴛʜɪɴɢ , ɪᴛ ᴊᴜꜱᴛ ʜᴀᴘᴘᴇɴꜱ .
 
 <p align="center"> <img width="900" height="600" src="https://files.catbox.moe/oj5lbo.jpg"> </p>
 <p align="center"> <img width="440" height="440" src="https://files.catbox.moe/apjb6x.webp"> </p>
