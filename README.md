@@ -43,8 +43,8 @@
             <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/0466f61841aca151126afa1fa42388a2/5921d166092ab148-6e/s100x200/600607e04c74aa520f39e0dedf4806cce65e606c.gifv"> </p>
 <p align="center"> '. ​🇮​ ​🇨​​🇦​​🇳​ ​🇹​​🇪​​🇱​​🇱​ ​🇯​​🇺​​🇸​​🇹​ ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇼​​🇦​​🇳​​🇹​ , ​🇾​​🇴​​🇺​ ​🇩​​🇴​​🇳​❜​🇹​ ​🇼​​🇦​​🇳​​🇹​ ​🇹​​🇴​ ​🇧​​🇪​ ​🇦​​🇱​​🇴​​🇳​​🇪​ . ​🇦​​🇳​​🇩​ ​🇮​ ​🇨​​🇦​​🇳​ ​🇸​​🇦​​🇾​ ​🇮​​🇹​❜​🇸​ ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇰​​🇳​​🇴​​🇼​ , ​🇧​​🇺​​🇹​ ​🇾​​🇴​​🇺​❜​🇻​​🇪​ ​🇰​​🇳​​🇴​​🇼​​🇳​ ​🇮​​🇹​ ​🇹​​🇭​​🇪​ ​🇼​​🇭​​🇴​​🇱​​🇪​ ​🇹​​🇮​​🇲​​🇪​ . ' 
   <p align="right"> - ​🇹​​🇼​​🇴​ ​🇩​​🇴​​🇴​​🇷​​🇸​ ​🇨​​🇮​​🇳​​🇪​​🇲​​🇦​ ​🇨​​🇱​​🇺​​🇧​ - ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇰​​🇳​​🇴​​🇼​ .
-  PONY TOWN INFORMATION!
-  11:37 PM[system] Congratulations! You delivered the notes in 43.691 seconds! You've beaten your personal best of 45.379 seconds (a 1.688s improvement)!
-  Playtime 5,816.4 hours : : Playtime 242d 8h 25m : : Account creation date 11th January 2021 (Used to have an account in 2019!)
-  #1st Zombie Ghost [COD] creator! : : #1st Unstable_Day skin! : : #1st Tony Stark skin in 2019!
-  ASL/ALS and 600th regiment veteran!
+<p align="left"> PONY TOWN INFORMATION!
+  <p align="left"> 11:37 PM[system] Congratulations! You delivered the notes in 43.691 seconds! You've beaten your personal best of 45.379 seconds (a 1.688s improvement)!
+<p align="left"> Playtime 5,816.4 hours : : Playtime 242d 8h 25m : : Account creation date 11th January 2021 (Used to have an account in 2019!)
+  <p align="left"> #1st Zombie Ghost [COD] creator! : : #1st Unstable_Day skin! : : #1st Tony Stark skin in 2019!
+<p align="left"> ASL/ALS and 600th regiment veteran!
