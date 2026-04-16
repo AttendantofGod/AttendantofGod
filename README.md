@@ -1,7 +1,7 @@
 <p align="center"> . ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ᴍʏ ᴅɴɪ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! .
 <p align="center"> . ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɪ ꜱᴀʏ 'ᴡᴇ' ᴏʀ 'ᴜꜱ' , ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ Qᴜᴇꜱᴛɪᴏɴ ɪᴛ , ɪᴛ'ꜱ ᴀ ꜱʟɪᴘ ᴏꜰ ᴛʜᴇ ᴛʜᴏᴜɢʜᴛ-ᴘʀᴏᴄᴇꜱꜱ . ꜱᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ɪ ᴛᴀʟᴋ ᴛᴏ ᴊᴜꜱᴛ ᴀꜱꜱᴜᴍᴇ ɪᴛ'ꜱ ᴀ ᴛɪᴄᴋ ᴏʀ ꜱᴏᴍᴇᴛʜɪɴɢ ᴡʜɪᴄʜ ᴏᴋ ɪ ᴅᴏɴ'ᴛ ᴄᴀʀᴇ ʙᴜᴛ ᴅᴏ !!ɴᴏᴛ!! ᴀꜱꜱᴜᴍᴇ ɪ ᴀᴍ ꜰᴀᴋɪɴɢ ᴅɪᴅ ᴏʀ ᴀɴʏᴛʜɪɴɢ . ɪᴛ'ꜱ ᴊᴜꜱᴛ ᴀ ʟɪᴛᴛʟᴇ ᴍɪꜱʜᴀᴘ ᴛʜᴀᴛ ʜᴀᴘᴘᴇɴꜱ ᴏꜰᴛᴇɴ , ɪ ᴀᴍ ɴᴏᴛ ᴛʀʏɪɴɢ ᴛᴏ ʙᴇ 'Qᴜɪʀᴋʏ' ᴏʀ 'ꜱᴘᴇᴄɪᴀʟ' ᴏʀ ᴀɴʏᴛʜɪɴɢ , ɪᴛ ᴊᴜꜱᴛ ʜᴀᴘᴘᴇɴꜱ .
 
-<p align="center"> <img width="900" height="600" src="https://media.discordapp.net/attachments/1472121616849702957/1473800073275244656/Sweater_3_10.png?ex=69e15ac7&is=69e00947&hm=e9b87a1fa7b3f6051a7ba1e68e83c0949f797040f79328795d36e664a6d6e138&=&format=webp&quality=lossless"> </p>
+<p align="center"> <img width="600" height="400" src="https://media.discordapp.net/attachments/1472121616849702957/1473800073275244656/Sweater_3_10.png?ex=69e15ac7&is=69e00947&hm=e9b87a1fa7b3f6051a7ba1e68e83c0949f797040f79328795d36e664a6d6e138&=&format=webp&quality=lossless"> </p>
 <p align="center"> <img width="440" height="440" src="https://media.discordapp.net/attachments/1472121616849702957/1473802168191422544/Sweater_3_12.png?ex=69e15cba&is=69e00b3a&hm=9dceebcfac558052a74926c831f434f7cd1c4261505607fb4f1073c0328aad44&=&format=webp&quality=lossless"> </p>
 <p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​🇱​​🇮​​🇴​​🇳​​🇦​ .
 <p align="center"> <img width="400" height="190" src="https://64.media.tumblr.com/85d0f7bb16de61fae5dc19631da8f5e8/1e3f52aa3fa01c75-e6/s2048x3072/1d8bc8d0f72e55e66f14e7d4ec81bb47ad9f0d91.pnj"> </p>
