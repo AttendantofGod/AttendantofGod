@@ -1,33 +1,8 @@
-<p align="center"> . ᴛʀɪɢɢᴇʀ ᴡᴀʀɴɪɴɢ ! ᴍʏ ᴅɴɪ ʜᴀꜱ ꜱᴏᴍᴇ ɪᴄᴋʏ ꜱᴛᴜꜰꜰ ! .
-<p align="center"> . ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɪ ꜱᴀʏ 'ᴡᴇ' ᴏʀ 'ᴜꜱ' , ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ Qᴜᴇꜱᴛɪᴏɴ ɪᴛ , ɪᴛ'ꜱ ᴀ ꜱʟɪᴘ ᴏꜰ ᴛʜᴇ ᴛʜᴏᴜɢʜᴛ-ᴘʀᴏᴄᴇꜱꜱ . ꜱᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ɪ ᴛᴀʟᴋ ᴛᴏ ᴊᴜꜱᴛ ᴀꜱꜱᴜᴍᴇ ɪᴛ'ꜱ ᴀ ᴛɪᴄᴋ ᴏʀ ꜱᴏᴍᴇᴛʜɪɴɢ ᴡʜɪᴄʜ ᴏᴋ ɪ ᴅᴏɴ'ᴛ ᴄᴀʀᴇ ʙᴜᴛ ᴅᴏ !!ɴᴏᴛ!! ᴀꜱꜱᴜᴍᴇ ɪ ᴀᴍ ꜰᴀᴋɪɴɢ ᴅɪᴅ ᴏʀ ᴀɴʏᴛʜɪɴɢ . ɪᴛ'ꜱ ᴊᴜꜱᴛ ᴀ ʟɪᴛᴛʟᴇ ᴍɪꜱʜᴀᴘ ᴛʜᴀᴛ ʜᴀᴘᴘᴇɴꜱ ᴏꜰᴛᴇɴ , ɪ ᴀᴍ ɴᴏᴛ ᴛʀʏɪɴɢ ᴛᴏ ʙᴇ 'Qᴜɪʀᴋʏ' ᴏʀ 'ꜱᴘᴇᴄɪᴀʟ' ᴏʀ ᴀɴʏᴛʜɪɴɢ , ɪᴛ ᴊᴜꜱᴛ ʜᴀᴘᴘᴇɴꜱ .
+i deadass give up 😭 why my github images not working anymore bruh
+<p align="center"> <img width="600" height="700" src="https://i.pinimg.com/736x/d1/8a/ba/d18abae4c03c9b5da028a6d049d371bd.jpg"> </p>
 
-<p align="center"> <img width="600" height="400" src="https://media.discordapp.net/attachments/1472121616849702957/1473800073275244656/Sweater_3_10.png?ex=69e15ac7&is=69e00947&hm=e9b87a1fa7b3f6051a7ba1e68e83c0949f797040f79328795d36e664a6d6e138&=&format=webp&quality=lossless"> </p>
-<p align="center"> <img width="440" height="360" src="https://media.discordapp.net/attachments/1472121616849702957/1473802168191422544/Sweater_3_12.png?ex=69e15cba&is=69e00b3a&hm=9dceebcfac558052a74926c831f434f7cd1c4261505607fb4f1073c0328aad44&=&format=webp&quality=lossless"> </p>
-<p align="center">. ​🇻​​🇪​​🇪​ , ​🇻​​🇪​​​ɪᴋᴋᴏ.
-<p align="center"> <img width="500" height="190" src="https://64.media.tumblr.com/85d0f7bb16de61fae5dc19631da8f5e8/1e3f52aa3fa01c75-e6/s2048x3072/1d8bc8d0f72e55e66f14e7d4ec81bb47ad9f0d91.pnj"> </p>
-<p align="center">. 17 . 11/18 .
-<p align="right">. ɢʜᴏꜱᴛꜱ , ꜱᴏᴍᴇᴏɴᴇ ᴅᴀʀᴇᴅ ᴛᴏ ɢᴏ ᴀɢᴀɪɴꜱᴛ ᴛʜᴇᴍ .<img with="44" height="44" src="https://64.media.tumblr.com/ec9c84b21a70295e004d265684ce1c7e/2408ed4c36a938c0-5e/s75x75_c1/8d604fe53507baf5aaea4bf94c9b96f25558d658.pnj"> </p>
-  <p align="center"> <img width="100" height="60" src="https://64.media.tumblr.com/a7f046d95f8d41420b8806eedffa4738/817a23bafd10d89a-62/s250x400/82a2b9373e4ed1e5fd754c597fdf44fcfd39095a.pnj"><img width="100" height="60" src="https://64.media.tumblr.com/8bcf40968dc107724e8fd379663a254b/6f669be85b9fdd3f-32/s250x400/7b94ff5c33150035861d394822c0b0912bc5abb0.gifv"><img width="100" height="60" src="https://64.media.tumblr.com/b6457b7f7799b2fc27fa2106e96aa2c9/2a15159cc53227f5-1a/s100x200/4b81a25e86465bd450b10acfff9c076add2e5ad7.gifv"> </p>
-<p align="right">. 🇩​​🇳​​🇮​ : <img width="44" height="44" src="https://64.media.tumblr.com/33a66541933e4193eed51c8c4690d84b/f4cf3be3a03a39af-25/s250x400/da1be549073070d109e97e456a43e50cd2d7c6ff.gifv"> </p>
-<p align="right">. 'ɪ'ᴍ ɢᴏɪɴɢ ᴛᴏ ᴛᴏᴜᴄʜ ʏᴏᴜ', 'ɪ ʜᴏᴘᴇ ᴅ1ᴅᴅʏ ɢᴇᴛꜱ ʏᴏᴜ' ᴊᴏᴋᴇꜱ . ᴇᴘꜱᴛᴇɪɴ ᴊᴏᴋᴇꜱ . ɪꜰ ɪ ᴇᴠᴇɴ ꜱᴇᴇ ᴀ ꜱᴋɪɴ ᴏꜰ ʜɪᴍ [ᴡʜɪᴄʜ ɪ ʜᴀᴠᴇ] ɪ'ᴍ ʙʟᴏᴄᴋɪɴɢ ʏᴏᴜ . ᴏᴋ?
-<p align="right">. ᴜɴɴᴇᴄᴇꜱꜱᴀʀʏ ꜰᴀɴᴅᴏᴍ ʜᴀᴛᴇʀꜱ .
-<p align="right">. ᴡ33ᴅ , ᴅʀᴜɢꜱ , ᴅʀᴜɴᴋ ᴘᴏɴʏ ꜱᴋɪɴꜱ .
-<p align="right">. ᴛᴜᴛᴏʀɪᴀʟ , ꜱᴛᴏʟᴇɴ , ᴄᴏᴘʏᴄᴀᴛ ᴘᴛ ꜱᴋɪɴꜱ .
-<p align="right">. ᴏɴʟʏ ᴛᴀʟᴋꜱ ᴛᴏ ᴍᴇ ᴛᴏ ᴛʀʏ ᴛᴏ ᴅᴀᴛᴇ ᴍᴇ , ʙᴀᴄᴋꜱᴛᴀʙʙᴇʀꜱ , ʀᴀɢᴇ-ʙᴀɪᴛᴇʀꜱ , ꜱɴᴀʀᴋʏ ᴘᴇᴏᴘʟᴇ .
-<p align="right"> . ɢᴇɴᴅᴇʀ/ᴘʀᴏɴᴏᴜɴ ᴀꜱᴋᴇʀꜱ . ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ʜᴀᴠᴇ ʙᴇᴇꜰ ᴡɪᴛʜ ᴛʜᴇꜱᴇ ᴛʏᴘᴇꜱ ᴏꜰ ᴘᴇᴏᴘʟᴇ ᴀɴᴅ ʜᴀᴠᴇ ᴛʀᴀᴜᴍᴀ ʀᴇɢᴀʀᴅɪɴɢ ᴛʜɪꜱ ᴄᴏᴍᴍᴜɴɪᴛʏ , ɪ ᴅᴏ ɴᴏᴛ ʜᴀᴛᴇ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ᴏʀ ᴛʜᴇɪʀ ꜱᴛᴜꜰꜰ , ɪ ᴊᴜꜱᴛ ᴅᴏ ɴᴏᴛ ᴡᴀɴᴛ ᴛᴏ ᴏᴘᴇɴ ᴛʜᴀᴛ ᴄᴀɴ ᴏꜰ ᴡᴏʀᴍꜱ . ɪꜰ ʏᴏᴜ ᴅᴏ ᴀꜱᴋ ᴏʀ ᴡɪꜱʜ ᴛᴏ ᴋɴᴏᴡ, ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴄᴀɴ ʙᴇ ᴀɴʏᴛʜɪɴɢ ᴀꜱ ʟᴏɴɢ ᴀꜱ ᴛʜᴇʏ ᴀʀᴇ ʀᴇᴀꜱᴏɴᴀʙʟᴇ ᴇx: ꜱʜᴇ/ʜᴇʀ .
-<p align="right"> . ᴀɴʏᴏɴᴇ ɪ ᴋɪɴ ᴏʀ ʟᴏᴠᴇ ᴅᴏᴇꜱ ɴᴏᴛ ᴍᴇᴀɴ ɪ ᴅᴏ ᴛʜᴇɪʀ ᴀᴄᴛɪᴏɴ , ᴘʟᴇᴀꜱᴇ ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴀᴛ ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ᴍᴀᴅᴇ-ᴜᴘ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ᴀɴᴅ ɪɴ ᴍʏ ᴏᴘɪɴɪᴏɴ ᴀʀᴇ ɴᴏᴛʜɪɴɢ ᴍᴏʀᴇ ᴀɴᴅ ɴᴏᴛʜɪɴɢ ʟᴇꜱꜱ . ɪ ᴅᴏ ɴᴏᴛ ᴠɪᴇᴡ ᴍʏꜱᴇʟꜰ ᴀꜱ ᴀ ꜰᴀᴄᴇʟᴇꜱꜱ ᴄʟᴏᴛʜ-ᴄᴏᴠᴇʀᴇᴅ ᴍᴏɴꜱᴛʀᴏꜱɪᴛʏ ᴡʜᴏ ᴡᴀꜱ ᴄʀᴇᴀᴛᴇᴅ ᴛᴏ ꜱᴇʀᴠᴇ ɢᴏᴅ , ɪ ᴅᴏ ɴᴏᴛ ᴅᴏ ᴀɴʏ ᴀᴄᴛɪᴏɴꜱ ᴏꜰ ᴠᴀʟᴛɪᴇʟ . ᴛʜᴀᴛ ɢᴏᴇꜱ ꜰᴏʀ ᴀʟʟ ᴋɪɴꜱ ᴏʀ ᴊᴜꜱᴛ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ʟɪᴋᴇ .
-<p align="center"> <img width="500" height="190" src="https://64.media.tumblr.com/85d0f7bb16de61fae5dc19631da8f5e8/1e3f52aa3fa01c75-e6/s2048x3072/1d8bc8d0f72e55e66f14e7d4ec81bb47ad9f0d91.pnj"> </p>
-. ᴡᴇ ᴡᴇʀᴇ ᴅᴇᴛᴇʀᴍɪɴᴇᴅ ᴛᴏ ʙᴇ ᴏɴᴇ ᴏꜰ ᴛʜᴇᴍ . <img with="44" height="44" src="https://64.media.tumblr.com/ea3a8455583056ddffe4bc076276d79b/2408ed4c36a938c0-d7/s75x75_c1/6a6f9d6b3b1408ce5759a362f903ca91d6cf6a3a.pnj"> </p>
-<p align="left"> . ​🇱​​🇮​​🇰​​🇪​​🇸​ : <img width="44" height="44" src="https://64.media.tumblr.com/ef13facb580dd18fab2bed7091d61b20/f4cf3be3a03a39af-60/s250x400/4bd4d89cee9621957727a0071f2b838cc40b36b9.gifv"> </p>
-<p align="left"> . ɢᴜɴᴅᴀᴍ , ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ , ᴇᴠᴀɴɢᴇʟɪᴏɴ .
-<p align="left"> . ᴜᴍᴀᴍᴜꜱᴜᴍᴇ , ʜᴏʀꜱᴇꜱ ɪɴ ɢᴇɴᴇʀᴀʟ .
-<p align="left"> . ᴋɪɴɢᴅᴏᴍ ʜᴇᴀʀᴛꜱ ​🇸​​🇵​​🇪​​🇨​​🇮​​🇫​​🇮​​🇨​​🇦​​🇱​​🇱​​🇾​ ​🇰​​🇮​​🇳​​🇬​​🇩​​🇴​​🇲​ ​🇭​​🇪​​🇦​​🇷​​🇹​​🇸​ ​🇽​ (​🇺​​🇳​​🇨​​🇭​​🇦​​🇮​​🇳​​🇪​​🇩​ ​🇽​/​🇺​​🇳​​🇮​​🇴​​🇳​ ​🇽​ ​🇩​​🇦​​🇷​​🇰​ ​🇷​​🇴​​🇦​​🇩​)
-<p align="left"> . ꜱɪʟᴇɴᴛ ʜɪʟʟ ɪɴᴄʟᴜᴅɪɴɢ ꜰ .
-<p align="left"> . ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ] .
-<p align="left"> . ​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
-<p align="left"> . ​🇴​​🇺​​🇹​​🇱​​🇦​​🇸​​🇹​ ​🇹​​🇷​​🇮​​🇦​​🇱​​🇸​ . ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ .
-<p align="center"> <img width="440" height="440" src="https://media.discordapp.net/attachments/1472121616849702957/1472856456264024074/Sweater_3_9.png?ex=69e137b7&is=69dfe637&hm=0409ef1f04e12bb43715bbb53d239dc410ce21c8198bfe8e75e5a20530c179d3&=&format=webp&quality=lossless"> </p>
-<p align="right"> . ꜱᴛᴀᴍᴘꜱ ɪ ʟɪᴋᴇ ^_^ ᴀɴᴅ ꜱᴏɴɢ ʟʏʀɪᴄꜱ ɪ ᴇɴᴊᴏʏ !! .
+<p align="right"> . ꜱᴛᴀᴍᴘꜱ ɪ ʟɪᴋᴇ ^_^ ᴀɴᴅ ꜱᴏɴɢ 
+
 <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/7f4698b67e0c08745637f9e9be8f9484/78f0cc0c088af555-97/s100x200/c9c860d7957fe44b2f650eab2ab1783eb4f9975e.gifv"> </p>
 <p align="right"> '. ʏᴏᴜ ᴡᴀɴᴛ ᴛʜᴇ ᴀᴄᴄʟᴀɪᴍ , ᴛʜᴇ ᴍᴏᴛʜᴇʀ ᴏꜰ ᴍᴏᴛʜᴇʀꜱ .' - ᴀᴄʜɪʟʟᴇꜱ ᴄᴏᴍᴇ ᴅᴏᴡɴ .
   <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/60c247eb12cc673e4180e1145226c4bb/8d8807c6f7bc6874-fc/s250x400/efc6aa0aba99d57063d639366d6b28e35d7bb064.pnj"> </p>
